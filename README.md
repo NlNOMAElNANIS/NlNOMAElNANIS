@@ -11,4 +11,5 @@ main @holoIive -- https://github.com/holoIive <br>
 ——— ramble
 
 i tend to be inactive thanks to hell (classes), but whenever from time to time, i usually stop by people's ata / pages as Anonymousたこ either unlinked or linked to my gh, which *might* be the wrong written word for *ta - ko*, since you know. *た* is *ta* and *こ* is *ko*. Which makes *tako*, as in a octopus. <br> <br>
-i know(?) some basics of jp when it comes to speaking, which at times i use the jp keyboard for wording it out, but i *cannot* read the letters at all. maybe ill go for katakana learning...
+i know(?) some basics of jp when it comes to speaking, which at times i use the jp keyboard for wording it out, but i *cannot* read the letters at all. maybe ill go for katakana learning... <br>
+- if you're ever curious who i oshi or some perferances, check my prn page -> https://en.pronouns.page/@タコに何
